@@ -1,4 +1,4 @@
-# katherin_cv
+# Katherin Valderrama
 
 Mi resumen curricular
 
